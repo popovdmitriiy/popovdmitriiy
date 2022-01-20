@@ -9,7 +9,7 @@
 
 - 📫 How to reach out to me **popov.dmitriiy@gmail.com**
 
-- 📄 Learn about my experience on [LinkedIn](https://www.linkedin.com/in/dmitriy-popov-289253201/)
+- 📄 Learn more about my experience on [LinkedIn](https://www.linkedin.com/in/dmitriy-popov-289253201/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
